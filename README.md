@@ -5,7 +5,7 @@
 + Addicted to **Dope Tech** including Digital products, Algorithms, Electric cars, AI
 
 💁 Contact me
-+ 微信：@They09
++ 微信：@Teny09
 + Email: vwvz@qq.com
 + Chinese / English
 + Looking for Fall 2021 SWE Internship
