@@ -4,7 +4,7 @@
 + Interested in changing the world, currently digging in the field of 🖥 &nbsp;**Computer Science**
 + Addicted to **Dope Tech** including Digital products, Algorithms, Electric cars, AI
 
-### ：information_desk_person：	 联络我
+💁 Contact me
 +微信：@They09
 + Email: vwvz@qq.com
 + Chinese / English
