@@ -5,7 +5,7 @@
 + Addicted to **Dope Tech** including Digital products, Algorithms, Electric cars, AI
 
 ### ：information_desk_person：	 联络我
-+微信：@Helipeng_tony
++微信：@They09
 + Email: vwvz@qq.com
 + Chinese / English
 + Looking for Fall 2021 SWE Internship
